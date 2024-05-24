@@ -16,7 +16,7 @@
 | [https://snakegpt.work](https://gpt-cat.com/login?invite_code=5a092405) | ⭐⭐⭐⭐⭐ |
 | [https://gpt-cat.com](https://snakegpt.work/?inVitecode=ZHBIPGPBXA) | ⭐⭐⭐⭐⭐ |
 | [https://ai-panda.xyz/](https://ai-panda.xyz/login?invite_code=320bff56) | ⭐⭐⭐⭐ |
-| [http://chat778.china123.online/?code=ZdrxYPohvN](http://chat778.china123.online/?code=zHuOwmyjZo) | ⭐⭐⭐ |
+| [http://china123.online/](http://chat778.china123.online/?code=zHuOwmyjZo) | ⭐⭐⭐ |
 | [http://gptdog.online/](http://gptdog.online/) | ⭐⭐⭐ |
 | [https://desk.im/](https://desk.im/) | ⭐⭐⭐⭐⭐ |
 | [https://poe.com](https://poe.com) | ⭐⭐⭐⭐⭐ |
